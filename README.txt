@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @D3M0NPL4YER
 - 👀 I’m interested in minecraft pvp
-- 🌱 I’m currently learning java
+- 🌱 I’m currently learning 他妈了个逼的臭寄吧道法
